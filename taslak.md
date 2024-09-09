@@ -94,3 +94,118 @@ Mezarligin önünde bir karalti. Üstünde bir kutu yüklü bir araba; birkac ad
 Papaz sesini cikarmadan uzandi. Tabutu omuzladilar ve kapiya dogru seyirttiler.
 "Acele!" diye ünledi arabac. Bir battaniyeye sarinmis, atlardan birine yaslanmism sigarasini tüttürüyordu.
 Kapiyi ittim, gicirdayarak acildi. Adamlarin ardindan ben de yavasca iceri süzüldüm.
+
+
+Ikisinin elinde kürek. Defin iscileri herhalde. Ücüncünün mavi bir önlügü var. Sag kulaginin arkasinda bir sigara, cöpcü olmali.
+Diger ikisinin kir-pas icinde üniforma üstleri ve asker kepleri vardi. Esir kampindan eve dönenlerden bunlar herhalde.
+Altinci kisi rahip.
+Nizamlari bozuldu. Omuzlarindaki tabut devrildi devrilecek.
+
+Suc rahipte; dik duramadi, inledi. Birden "indirin" diye bagirdi. Yere cöküverdi.
+
+"Kpolpk" etti uctu tabutun kapagi.
+Eline koluna saglik.
+Papaz topalliyordu; tabut ayagina denk gelmisti. Ölü disari yuvarlanmisti. Kirec gibi benziyle duruyordu öyle.
+Fabrikanin asetilen lambalari onu aydinlatiyordu. Gri bir gömlek giymis, bir deri bir kemik, agzinda ve sakalinda kurumus kan vardi. Gülümsüyordu.
+"Aptal." dedi cöpçü.
+Tabutu cevirdiler ve mevtayi yeniden icine yerlestirdiler. 
+Askerlerden biri "Mevta temiz degil, dikkatli edin" dedi. "Bir sey olmaz" dedi digeri.
+Kapak yerine oturunca egildiler.
+"Haaaaaaaay-di!" diye bagirdi defin iscileri.
+"Maars!"
+Papaz topalliyordu.
+Toprak yigininin yaninda bekleyen bir kadin vardi. Tanidim: Müfettis hanim bu. Delik desik bir semsiye acmisti. Irice deliklerden arkadaki fabrikanin aydinlatilmis bacalari seciliyordu. Cuval bezinden bir etegi vardi; üzerinde Devlet Tutkal Ofisi yaziyordu.
+"Buraya" diye bagirdi.
+Toprak yigininin yaninda bir cukur. Cukurun yaninda bir halat. Onun yaninda üzerinde bir numara secilen celikten bir Hac.
+Tasiyicilar tabutu indiriyorlardi.
+"Biiiii-rak!" diye emretti defin iscileri.
+Tabut topraga dogru paldir küldür indi. Üzerinde tebesirle Y. Tanri yaziliydi. Altinda da bir tarih, fakat coktan silinmisti. Papaz genzini temizledi.
+"Vay anasini" dedi askerlerden biri. Alninda kirisiklar belirdi.
+Digeri ayagini tabutun üstüne koydu ve ileriye dogru egildi. "Allah kahretsin" dedi ve patlak ayakkabisinin ucundan tasan parmaklarini oynatti. 
+"Hadi beyler" dedi müfettis hanim, "indirin asagi."
+Defin iscilerinden biri cukuru kürek sapiyla ölctü. "Kafayi yiyecegim" dedi.
+"Ne var" dedi digeri.
+"Sig kazmislar."
+Toprak attilar.
+Kesekler cukurun icine düstükce "cup" ediyordu. Tabandan su cikmisti.
+"Iyidir" dedi cöpcü.
+Papaz genzini temizledi. "Degerli hazirun" dedi. "Aha," dedi defin iscilerinden biri. "Su halati tut hele. Söyle. Simdi simdi seyi suraya getir."
+Tabutu kaldirdilar, sagindan ve solundan ücer dügüm görünen halatin üstüne getirdiler.
+
+
+"Siiiiiim-di!" diye isaret verdi defin iscileri. Tabut simdi cukurun üstünde asili vaziyetteydi.
+Asetilen lambalar ortaligi gündüz gibi aydinlatiyordu. Düzlenmis mezarlar üstündeki celik haclarin kivrimlari lahana basi kadar yükselmiyordu. (Die Blechkreuze rings auf den flachen Hügeln sindi nicht höher als Kohlköpfe)
+Yagmur araliksiz yagiyordu.
+Waldemars Balo Salonlarinin küflü arka duvarindan sivalar söküldü ve iki mezar tasini devirdi.
+Defin iscilerinden biri "Alcaltin" dedi. "Yavasca alcaltin."
+Tabut inmeye basladi.
+"Ölüm nedeni neydi?" diye sordum.
+Müfettis hanim esnedi "Ben ne bileyim?"
+Karantina bölgesinden harmonika müzigi geliyordu.
+"Üc deyince birak." dedi diger defin iscisi; saydi: "Bir -, iki -, "
+"Durun" dedi Papaz ve bacagini cukurdan cekti; "tamam"
+"Üc!"
+Koca bir cuval suyun icine düsmüs gibi bir ses cikti.
+"Rezalet" dedi cöpcü ve yüzünü sildi.
+Askerler basliklarini cikardilar. Papaz ellerini kavusturdu.
+"Eh." Defin iscilerinden biri tükürdü ve halati toplamaya basladi.
+"Kolaylikla biraz daha derine indirebilirdiniz." dedi müfettis hanim. 
+Papaz duasini bitirdi. Bir toprak parcasi aldi ve mezarin icine atti.
+"Cup" etti. Ben de egildim.
+"Cup."
+Cöpcü kendi payina düsen kismi ayagiyla ittirerek yuvarladi. "Cup."
+
+
+"Siiiiiim-di!" diye isaret verdi defin iscileri. Tabut simdi cukurun üstünde asili vaziyetteydi.
+Asetilen lambalar ortaligi gündüz gibi aydinlatiyordu. Düzlenmis mezarlar üstündeki celik haclarin kivrimlari lahana basi kadar yükselmiyordu. (Die Blechkreuze rings auf den flachen Hügeln sindi nicht höher als Kohlköpfe)
+Yagmur araliksiz yagiyordu.
+Waldemars Balo Salonlarinin küflü arka duvarindan sivalar söküldü ve iki mezar tasini devirdi.
+Defin iscilerinden biri "Alcaltin" dedi. "Yavasca alcaltin."
+Tabut inmeye basladi.
+"Ölüm nedeni neydi?" diye sordum.
+Müfettis hanim esnedi "Ben ne bileyim?"
+Karantina bölgesinden harmonika müzigi geliyordu.
+"Üc deyince birak." dedi diger defin iscisi; saydi: "Bir -, iki -, "
+"Durun" dedi Papaz ve bacagini cukurdan cekti; "tamam"
+"Üc!"
+Koca bir cuval suyun icine düsmüs gibi bir ses cikti.
+"Rezalet" dedi cöpcü ve yüzünü sildi.
+Askerler (terhisler) basliklarini cikardilar. Papaz ellerini kavusturdu.
+"Eh." Defin iscilerinden biri tükürdü ve halati toplamaya basladi.
+"Kolaylikla biraz daha derine indirebilirdiniz." dedi müfettis hanim. 
+Papaz duasini bitirdi. Bir toprak parcasi aldi ve mezarin icine atti.
+
+
+
+"Cup" etti. Ben de egildim.
+"Cup."
+Cöpcü kendi payina düsen kismi ayagiyla ittirerek yuvarladi. "Cup."
+bir anlik sessizlik; yalnizca Tutkal fabrikasindaki makinelerin gicirtilari ve tislamalari duyuoluyordu. Sonra müzik yeniden basladi. Bu defa daha yüksek sesle. Askerler sapkalarini yeniden taktilar. Kalcalarini oynatmaya ve mirildanmaya basladilar.
+"Bitti-?" diye sordu cöpcü.
+"Bitti." dedi müfettis hanim. "Haci yeterince derine batirin."
+Papaz ellerini temizledi. "Degerli hazirun" dedi tekrar.
+"Hey!" diye haykirdi arabaci.
+Cöpcü "Hop!" diye bagirdi. Sapkasina dokundu: "hadi iyi aksamlar." 
+"Iyi aksamlar" dedi askerler. Onlar da gitti.
+Müfettis hanim onlari takip etti. Kivrilmis etegiyle sari salgam köküne benziyordu.
+Defin iscileri toprak atmaya basladi.
+"Trum" etti; "trum, trum."
+"hay ici boklu" dedi biri ve kürek üstündeki camuru tekmeyle uzaklastirdi.
+("Geben se heut im Odeon?" fragt der andre.)
+Papaz Waldemars Balo Salonlarinin arka duvarina bakti.
+"Daha belli" dedi ilk defin iscisi: "bir yanindan gececegim." ("gleich mal vorbeigehn")
+"Hayda" dedi arabaci disarida.
+"Iyi aksamlar" dedim.
+Papaz karsilik vermedi. (rührt sich nicht aslinda kipirdamadi demek)
+"Iyi aksamlar" dedi defin iscileri (cenazeciler).
+ben acinca mezarlik kapisi gicirdadi. Citin sivri ucuna bir kagit takilmisti. Yirtip aldim; bir gazete küpürüymüs. Ilanlar kismi, yagmurda islanmis. Sol tarafta Patria-Bar kendi kiyafetlerini getirebilecek zarif bir garson ariyor; sag tarafta biri yatak örtüsünü bir tavayla takas etmenin derdinde. Ikisinin arasinda. Siyah cerceve icinde, Ölüm Ilani.
+
+
+NE BIR SEVENI VARDI, NE DE NEFRET EDENI, GÖKSEL BIR SABIRLA KATLANILAN UZUN ACILARIN ARDINDAN ÖLDÜ BUGÜN: TANRI.
+
+Arkami döndüm. 
+Defin iscilerinden biri mezarin icine girmis, topragi sikistirmak icin üzerinde tepiniyordu. Öteki burnunu sümkürüp parmaklarina bulasan sümügü savurmaya calisiyordu.
+Tutkal fabrikasinin makinalari takirdiyordu. Bacalari asagidan aydinlatilmisti. Üst kisimlari sisin icinde kayboluyordu. Dikenli telin ardinda, kömür meydaninda terhisler duruyordu ve bekliyorlardi, yagmur yagiyordu. Asetilen lambalar ortaligi gündüz gibi aydinlatiyordu; onlarin erisemedigi yerler, gece.
+Simdi Harmonika da yeniden basladi. Birisi ona bir sarkiyla eslik ediyor: "La paloma ohé!"
+Mezarlik kapisi gicirdiyor. Papaz bu defa.
+Topalliyor.
