@@ -1,12 +1,11 @@
 Defin
-Mutfakta, taburede oturuyordum. Kapi calindi. Asagi indim, kilidi kaldirdim, kapiyi actim. Gece, yagmur. 
-Hayret, diye düsündüm. Calmisti kapi.
-Hist dedi taraca.
-He? dedim.
+Mutfakta, taburede oturuyorum. Kapi calindi. Asagi indim, cekicle civiyi bir kenara biraktim; kapiyi actim: Gece; yagis. 
+Hayret, diye düsündüm. Calmisti ama.
+Taraca "Tipc" etti.
+"He?" dedim.
 Sirtimdan biri seslendi; "Meraba!"
-Yine geri gittim. Masanin üzerinde bir zarf duruyor.
+Iceri gittim geri. Masanin üzerinde bir zarf.
 Aldim.
-Mutfaga geri döndüm.
 
 Kapi yine caldi. Zarfi biraktim. Asagi indim. Actim, baktim: Yine kimse yok.
 Garip, diye gecirdim icimden.
@@ -14,11 +13,11 @@ Tekrar yukari gittim.
 Zarf orada duruyor. Siyah kenarli, beyaz bir zarf. Biri ölmüs olmali diye düsündüm.
 Etrafima baktim.
 "Buhur kokusu var." dedi burnum.
-"Dogru dedin." dedim. "Evvelden yoktu. Tuhaf."
-Zarfi yirttim, oturdum, gözlügü taktim. Simdi. Hakliymisim. Bir taziye haberi. Söyle:
-NE BIR SEVENI VARDI, NE ONDAN BIR NEFRET EDEN. GÖKSEL BIR SABIRLA KATLANILAN UZUN ACILARIN ARDINDAN ÖLDÜ BUGÜN: TANRI
-hemen altinda, kücük:
-Defin töreni bu aksam büyük bir sessizlik icinde Aziz Zebedaus Mezarliginda gerceklesecektir. 
+"Dogru dedin." dedim. "Evvelden yoktu. Tuhaf." Zarfi yirttim, oturdum, gözlügü taktim. Simdi. 
+Hakliymisim. Bir taziye haberi. Söyle:
+NE BIR SEVENI VARDI, NE DE NEFRET EDENI, GÖKSEL BIR SABIRLA KATLANILAN UZUN ACILARIN ARDINDAN ÖLDÜ BUGÜN: TANRI.
+Hemen altinda, kücük:
+Defin töreni bu aksam büyük bir sükunet icinde Aziz Zebedaus Mezarliginda gerceklesecektir. 
 
 
 Gördün mü bak, dedim. O da kurtulamadi elinden, ihtiyar; böyle bu isler. Gözlügü kabina koydugum gibi ayaklandim.
