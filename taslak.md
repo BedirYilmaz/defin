@@ -1,4 +1,4 @@
-Defin (Cenaze?)
+Defin
 Mutfakta, taburede oturuyordum. Kapi calindi. Asagi indim, kilidi kaldirdim, kapiyi actim. Gece, yagmur. 
 Hayret, diye düsündüm. Calmisti kapi.
 Hist dedi taraca.
