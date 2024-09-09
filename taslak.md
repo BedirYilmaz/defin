@@ -86,7 +86,7 @@ Yagmur siddetini öylesine artirmisti ki, sokak lambalari artik zar-zor seciliyo
 Maresal Sokak; simdilerdde dikenli tellerle cevrilmis olan Kömür Meydanina baglaniyordu;
 Terhis olup evine dönenler icin karantina bölgesiydi.
 Yagmurun altinda durmus bekliyorlar.  St. Zebedäus Mezarliginin soly yani WALDEMARS BALO SALONLARI'nin arka duvarinin altina dipdibe siginmislar. Sag taraf tutkal fabrikasi. Lekelenmis pencereleri aydinlik, cikan seslerden tam kapasiteyle calistigi anlasiliyor. Bacalari asagidan aydinlatilmis, üst kisimlari siste kayboluyor.
-Mezarligin önünde bir karalti. Üstünde bir kutu yüklü bir araba; birkac adam, bir at.
+Mezarligin önünde bir karalti. Üstünde bir tabut yüklü bir araba; birkac adam, bir at.
 "Iyi aksamlar" dedim.
 "Papaz sen misin?"
 "Yok" dedim. "O."
