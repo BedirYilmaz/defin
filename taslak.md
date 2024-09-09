@@ -1,4 +1,4 @@
-Defin
+# Defin
 Mutfakta, taburede oturuyorum. Kapi calindi. Asagi indim, cekicle civiyi bir kenara biraktim; kapiyi actim: Gece; yagis. 
 Hayret, diye düsündüm. Calmisti ama.
 Taraca "Tipc" etti.
